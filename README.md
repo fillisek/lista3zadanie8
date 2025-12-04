@@ -1,1 +1,1 @@
-# lista3zadanie8
+Kanye West to najlepszy raper.
